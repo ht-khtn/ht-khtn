@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ht-khtn
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning at Grade 8
+- 🌱 I’m 2k8
 - 📫 Zalo: 0704941701, web: https://sites.google.com/view/phanmemhotrohtkhoahoctunhien
 
 <!---
